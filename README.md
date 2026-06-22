@@ -14,7 +14,7 @@
 ## Education
 
 * B.Sc. Graduate (Chennai)
-* Aspiring M.Sc. Data Science Student (Coimbatore)
+* M.Sc. Data Science Student (Coimbatore)
 
 ## Career Goal
 
